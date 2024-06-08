@@ -1,2 +1,0 @@
-# kuppersgreeneortho.com
-kuppersgreeneortho.com
